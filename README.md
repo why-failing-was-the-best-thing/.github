@@ -1,1 +1,3 @@
-# .github
+# *Why Failing Was the Best Thing That Can Ever Happen to You*
+## *Discover why failing was the best thing that can happen to you. Lessons from Jack Ma on rejection, persistence, and turning mistakes into a billion-dollar empire. Embrace spiritual lessons, build resilience, and transform setbacks into sacred stepping stones. Perfect for seekers of motivation, healing, and divine purpose.* [More details…](https://spiritualkhazaana.com/web-stories/why-failing-was-the-best-thing-that-can-ever-happen-to-you/)
+## #spiritualjourney #trustingfailure #motivationalinspiration #failing #failure #failed #failureissuccess #spiritualmeaningoffailure #lessonsfromfailure #growththroughfailure #whyfailingisgoodspiritually #motivationalquotesonfailure #spirituallessonsfromfailure #howtoovercomefearoffailure #divinetimingandsetbacks #inspirationalwebstoryonresilience
